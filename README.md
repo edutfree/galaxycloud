@@ -4,9 +4,9 @@
 
 永久官网：[https://fbweb02.flyingbird.la](https://xuv.cc/out/bird)
 
-[flyingbird.cc](https://fbinv02.fbaff.cc/auth/register?code=xMqvfNBk)
+最新直连官网：[flyingbird.cc](https://fbinv02.fbaff.cc/auth/register?code=xMqvfNBk)
 
-[![飞鸟机场机场官网地址](byg_20240929_095829.png)](https://xuv.cc/out/bird)
+[![飞鸟机场机场官网地址](flyingbird_20241012_203514.png)](https://xuv.cc/out/bird)
 
 ## 飞鸟机场机场特色简介
 
@@ -28,6 +28,8 @@
 </ul>
 
 ## 飞鸟机场机场套餐价格
+
+每30天重置流量，不限制客户端数量，不限制速度，支持所有节点线路，多数流媒体解锁，快速客服响应，全平台客户端。
 
 <table>
     <tbody>
@@ -83,14 +85,10 @@
             <td>720元</td>
             <td>1440元</td>
         </tr>
-        <tr>
-            <td>套餐详情</td>
-            <td style="text-align: left; colspan=" 4">每 30 天重置流量，不限制客户端数量，不限制速度，支持所有节点线路，多数流媒体解锁，快速客服响应，全平台客户端。</td>
-        </tr>
     </tbody>
 </table>
 
-[![飞鸟机场机场套餐价格](byg_20240929_100011.png)](https://xuv.cc/out/bird)
+[![飞鸟机场机场套餐价格](flyingbird_20241012_203929.png)](https://xuv.cc/out/bird)
 
 ## 飞鸟机场优惠码
 
