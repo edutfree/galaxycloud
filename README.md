@@ -1,10 +1,10 @@
-# 银河云机场官网地址2024最新入口 + 限时优惠码
+# GalaxyCloud银河云官网地址2025最新入口 + 限时优惠码
 
 银河云机场跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是银河云机场官网最新地址：
 
 永久官网：[galaxycloud.pro](https://xuv.cc/out/galaxy)
 
-最新直连官网：[galaxycloud.cc](https://inv01.galaxyaff.cc/register?aff=2KesZjXi)
+最新直连官网：[galaxycloud.cc](https://inv03.galaxyaff.cc/register?aff=2KesZjXi)
 
 [![银河云机场机场官网地址](galaxycloud_uxtt_20241011_151319.png)](https://xuv.cc/out/galaxy)
 
