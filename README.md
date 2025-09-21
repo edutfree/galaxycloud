@@ -6,7 +6,13 @@
 
 最新直连官网：[galaxycloud.cc](https://inv03.galaxyaff.cc/register?aff=2KesZjXi)
 
-[![银河云GalaxyCloud官网地址](galaxycloud_uxtt_20241011_151319.png)](https://xuv.cc/out/galaxy)
+---
+
+**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+
+**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+
+---
 
 ## 银河云GalaxyCloud特色简介
 
@@ -38,3 +44,11 @@
 银河云优惠码：[nation](https://xuv.cc/out/galaxy)
 
 Galaxy 国庆 75 折酬宾，国庆优惠继续延续。劲爆 75 折，优惠后低至￥6/月，有需要不要错过了。
+
+---
+
+**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+
+**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+
+---
